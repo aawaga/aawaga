@@ -5,9 +5,13 @@ i really really realy REALLY LOVE objectified i have it injected into my bloodst
 ⋆˚☆˖°⋆｡° ✮˖ ࣪ ⊹⋆.˚
 
 ★ analogix + autosexual hypersexual + mlm/bi
+
 ★ he/him , kit/kitten , zomb/zombie , com/computer
+
 ★ system (6 alters , 2 hosts) , pica , ocd , adhd , depression (all undiagnosed exept depression)
+
 ★ fictionkin (check prn page for kins) , feline claudotherian (psychological)
+
 ★ furry
 
 ⋆˚☆˖°⋆｡° ✮˖ ࣪ ⊹⋆.˚
