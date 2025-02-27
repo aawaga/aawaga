@@ -1,5 +1,6 @@
 <img width="100" src=https://img1.picmix.com/output/pic/thumb/7/9/6/8/12358697_18817.gif>
 ⋆⭒˚.⋆ hi im mattpatt/gabriel .ᐟ.ᐟ.ᐟ 
+
 i really really realy REALLY LOVE objectified i have it injected into my bloodstream lala
 
 ⋆˚☆˖°⋆｡° ✮˖ ࣪ ⊹⋆.˚
@@ -17,6 +18,7 @@ i really really realy REALLY LOVE objectified i have it injected into my bloodst
 ⋆˚☆˖°⋆｡° ✮˖ ࣪ ⊹⋆.˚
 
 ⚠⚠⚠⚠ INTERACT WITH CARE/CAUTION + FANDOMS IM IN (i love these but i have intrusive thoughts that ure copying/getting inspired by me n i dont like it at all....) ⚠⚠⚠⚠ 
+
 ★ objectified
 
 ★ pvz
@@ -53,6 +55,7 @@ i really really realy REALLY LOVE objectified i have it injected into my bloodst
 
 
 ⚠⚠⚠⚠ DNI ⚠⚠⚠⚠ 
+
 ★ do not fucking copy/ get inspired by me. it gen triggers me n i can relapse.
 
 ★ s/h enabelers/ supporters (i used to s/h and it was not fun)
