@@ -62,9 +62,9 @@ i really really realy REALLY LOVE objectified i have it injected into my bloodst
 
 ★ anyone named Haku , Razor (trauma)
 
-★ genshin
+★ genshin (trauma)
 
-★ bungo stray dogs
+★ bungo stray dogs (trauma)
 
 ★ basic dni (proship, homophob, etc etc
 
