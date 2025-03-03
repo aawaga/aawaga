@@ -1,3 +1,51 @@
+FOR PONY TOWN:
+
+★ c+h freellyyy (unless dni/uf/id) i lovee cuds :333
+
+★ w2i!! allways off tab
+
+★ touch comfort!!!
+
+★ please do not kiss me unless i do or unless ure trev (my bf :33333 TREV IF URE SEEING THIS HII ILYSMMMMMM <33)
+
+
+TAGS:
+
+⊹ sys: alters pony (check straw for alters)
+
+⊹ c+h: cuddles n hiding
+
+⊹ me: alters pony part two 🤑🤑
+
+⊹ dni: do not interact
+
+⊹ dniuf: do not interact unless friends
+
+⊹ dniuid: do not interact unless i do
+
+
+TONE TAGS:
+
+⊹ /j: joking
+
+⊹ /hj: half joking, emphasis on joking part
+
+⊹ /hsrs: half serious, emphasis on serious part
+
+⊹ /srs: serious
+
+⊹ /pos: positize
+  /vpos: very positive
+
+⊹ /neg: negative
+  /vneg: very negative
+
+⊹ /v: vent
+
+⊹ /ic: in character
+
+⋆˚☆˖°⋆｡° ✮˖ ࣪ ⊹⋆.˚
+
 <img width="100" src=https://img1.picmix.com/output/pic/thumb/7/9/6/8/12358697_18817.gif>
 ⋆⭒˚.⋆ hi im mattpatt/gabriel .ᐟ.ᐟ.ᐟ 
 
