@@ -69,39 +69,39 @@ i really really realy REALLY LOVE objectified i have it injected into my bloodst
 
 ⚠⚠⚠⚠ INTERACT WITH CARE/CAUTION + FANDOMS IM IN (i love these but i have intrusive thoughts that ure copying/getting inspired by me n i dont like it at all....) ⚠⚠⚠⚠ 
 
-★ objectified
+★ objectified (obj)
 
-★ pvz
+★ plants vs zombies (pvz)
 
 ★layze
 
-★ portal
+★ portal 1-2 (p1-2)
 
-★ ultrakil
+★ ultrakil (u.k)
 
-★ spookys jumpscare mansion/ spookys house of jumpscare + dollhouse dlc + karamari hospital dlc
+★ spookys jumpscare mansion/ spookys house of jumpscare (sjm) + dollhouse dlc (sjm-dh) + karamari hospital dlc (sjm-kh)
 
-★ garten of banban
+★ garten of banban (gbb/ gobb)
 
-★ a hat in time
+★ a hat in time (ahit)
 
-★ inscryption (bring the fandom back plea
+★ inscryption (bring the fandom back plea (insc)
 
-★ my singing monsters
+★ my singing monsters (msm)
 
 ★ bfdi , bfdia , idfb , bfb , tpot
 
-★ animatic battle
+★ animatic battle (a.b)
 
-★ its time for the 
+★ its time for the  (itft)
 
-★  regretevator
+★  regretevator (regr)
 
-★ vintage eight universe (the tangi virus , oracle project , the children under the house etc)
+★ vintage eight universe (v8u) (the tangi virus (ttv) , oracle project (top) , the children under the house (tcuth) etc)
 
-★ law of talos
+★ law of talos (lot)
 
-★ zoochosis
+★ zoochosis (zooch)
 
 
 ⚠⚠⚠⚠ DNI ⚠⚠⚠⚠ 
