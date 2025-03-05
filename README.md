@@ -11,6 +11,8 @@ FOR PONY TOWN:
 
 TAGS:
 
+⊹ddni(uid): doubles do not interact (unless i do)
+
 ⊹ sys: alters pony (check straw for alters)
 
 ⊹ c+h: cuddles n hiding
