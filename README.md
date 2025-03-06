@@ -110,7 +110,7 @@ i really really realy REALLY LOVE objectified i have it injected into my bloodst
 
 ★ s/h enabelers/ supporters (i used to s/h and it was not fun)
 
-★ anyone named Haku , Razor (trauma)
+★ anyone named Hasu , Hasegawa , Razor (trauma)
 
 ★ genshin (trauma)
 
