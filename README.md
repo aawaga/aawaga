@@ -1,4 +1,5 @@
 BYI
+
 ★ sorry but i dont take kindly to doubles,, i will get aggressive (especially fossil, razor/andy, and turbine) (DNI or DNIUID/UF)
 ★ i NEED tonetags,, im tonedeaf when texting
 ★ IWECAUT/CARE if youre apart of the same fandoms as me,, i can get aggressive (especially fossil, razor/andy, and turbine)
@@ -9,6 +10,7 @@ with that being said,, i am completly harmless unless provoked, feel free to int
 ⋆˚☆˖°⋆｡° ✮˖ ࣪ ⊹⋆.˚
 
 FOR PT
+
 ★ C+H freely,, cudcomf (unless DNI/UF/UC/UP/UBF in name)
 ★ whisper to interact at all times
 ★ allways offtab
@@ -16,11 +18,13 @@ FOR PT
 ⋆˚☆˖°⋆｡° ✮˖ ࣪ ⊹⋆.˚
 
 INTRO
+
 hi im mattpatt/gabriel .ᐟ.ᐟ.ᐟ 
 
 i really really realy REALLY LOVE objectified i have it injected into my bloodstream lala
 
 GENERAL INFO
+
 ★ analogix + autosexual hypersexual + mlm/bi (CHECK PRONOUNPAGE)
 ★ he/him , kit/kitten , zomb/zombie , com/computer
 ★ system (6 alters , 2 hosts, CHECK STRAWPAGE) , pica , ocd , adhd , depression (all undiagnosed exept depression)
@@ -30,6 +34,7 @@ GENERAL INFO
 ⋆˚☆˖°⋆｡° ✮˖ ࣪ ⊹⋆.˚
 
 NAMETAGS
+
 ★ ddni: doubles do not interact
 ★ sys/me: alters pony
 ★ intrj: introject/ projecting myself onto the character/pony
@@ -43,6 +48,7 @@ NAMETAGS
 ⋆˚☆˖°⋆｡° ✮˖ ࣪ ⊹⋆.˚
 
 TONETAGS
+
 ★ /j: joke
 ★ /hj: half joke, emphasis on joke
 ★ /hsrs: half serious, emphasis on serious
