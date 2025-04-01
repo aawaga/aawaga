@@ -9,6 +9,7 @@ BYI
 ★ i apologise sincerely for anything i say,, i sometimes/ussualy say things out of impulse. please do not take anything to heart unless stated so
 
 ★ (PT MAINLY) please do not kiss me unless i do or youre trev (my bf mwah ilsmsmsmsmsmsm screams
+
 with that being said,, i am completly harmless unless provoked, feel free to int! just keep that in mind
 
 ⋆˚☆˖°⋆｡° ✮˖ ࣪ ⊹⋆.˚
