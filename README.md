@@ -1,3 +1,5 @@
+READ MY OBJECT COMIC!! https://ctbfofficial.straw.page
+
 BYI
 
 ★ sorry but i dont take kindly to doubles,, i will get aggressive (especially fossil, razor/andy, and turbine) (DNI or DNIUID/UF)
